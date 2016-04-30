@@ -1,0 +1,2 @@
+# SPALAH.HTML.CSS.HW-11.2
+error (404)
